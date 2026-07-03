@@ -1,4 +1,4 @@
-#  
+#  premium welcome to bloxburg Script offers the most advanced welcome to bloxburg Script, with aimbot and auto-collect. Perfect for dominating any
 
 
 
